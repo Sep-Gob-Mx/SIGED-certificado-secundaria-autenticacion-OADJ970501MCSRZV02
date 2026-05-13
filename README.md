@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-OADJ970501MCSRZV02
+OADJ970501MCSRZV02
